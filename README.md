@@ -1,2 +1,0 @@
-# Divyataa
-Divyataa Website
